@@ -4,7 +4,7 @@ Thank you for visiting my GitHub! 🚀
 Please note that this account is no longer my primary GitHub account.  
 
 For my latest projects, contributions, and updates, kindly visit my **main GitHub profile**:  
-👉 [My Main GitHub Profile](https://github.com/AMG786)
+👉 [My Main GitHub Profile](https://github.com/AMG786) https://github.com/AMG786 
 
 ---
 
