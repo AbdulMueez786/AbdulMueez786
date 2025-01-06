@@ -1,4 +1,4 @@
-# Welcome to My GitHub Profile 👋
+# Welcome to My GitHub Profile 👋 This account is no longer my primary GitHub account.
 
 Thank you for visiting my GitHub! 🚀  
 Please note that this account is no longer my primary GitHub account.  
